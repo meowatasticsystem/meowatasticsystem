@@ -2,4 +2,4 @@
 
 
 ✦ 💬 my sp is a wip rn, so I removed it!
-https://youtu.be/dHg50mdODFM?feature=shared
+![](https://youtu.be/dHg50mdODFM?feature=shared)
