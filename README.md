@@ -2,4 +2,3 @@
 
 
 ✦ 💬 my sp is a wip rn, so I removed it!
-[!](https://img.shields.io/badge/SoundCloud-Here_Comes_a_Thought-orange)
