@@ -2,4 +2,4 @@
 
 
 ✦ 💬 my sp is a wip rn, so I removed it!
-![](https://youtu.be/dHg50mdODFM?feature=shared)
+[!][Listen on SoundCloud](https://img.shields.io/badge/SoundCloud-Here_Comes_a_Thought-orange)](https://soundcloud.com/stevenuniverse-music/here-comes-a-thought-feat)
