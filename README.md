@@ -11,6 +11,8 @@ Also, Soap, stop bringing up my past. I’ve already admitted I was wrong. I’v
 
 ALSO. for crying out LOUD. STOP adding Vinny to literally fucking everything. Like Jesus Christ on a stick, we are not conjoint twins or something. When I say my shit, don’t bring him into it. I’m allowed to speak for myself without you dragging him into every damn sentence like we’re a package deal. It’s exhausting. And Saff, Vinny SHOWED PROOF of how Soap is manipulative, and obviously you can’t see that. Stop throwing the manipulative card at literally anyone and anything just because you don’t like what’s being said. It’s getting out of hand.
 
+^ vinny already stated that he doesn't want to be mentioned and you should RESPECT THAT. he literally did nothing!!!!
+
 I’m mentally and emotionally drained from constantly having to defend myself & others to people who claim to care. It’s like no matter how many times we explain ourself, no matter how many times we try to be honest, it gets twisted or ignored. I’m tired of me and vinny being the one who has to carry the emotional weight of you two while everyone else gets to point fingers and act like we the problem. You keep acting like you’re the only one hurting, but you never stop to ask how your actions affect the rest of us. You don’t see the damage you leave behind when you lash out, when you dismiss what we’re feeling, when you make everything about you. We’re all dealing with things. We’re all trying to hold it together. But you make it harder every time you refuse to acknowledge that you’re not the only one in pain.
 
 
