@@ -1,7 +1,7 @@
 ![](https://64.media.tumblr.com/da0021b3a9d594150d0af21422b5b352/9675be42b7d3a191-d3/s400x600/48cbc49b6d76c57ceba4a4097b03a706aa4cc864.pnj)
 
 
-✦ 💬 my sp is a wip rn, so I removed it!
+✦ 💬 yes, this is a drama dump.
 ︶︶︶︶︶︶︶︶︶︶︶︶︶︶︶︶︶︶
 Saff, for the love of God, stop twisting what I am. Just because I told you that being around Soap isn’t a good idea doesn’t mean I, or anyone ELSE is manipulative. That’s not what this is about, and you know it. You’re seriously starting to act just like Soap, and it’s honestly ridiculous. I’ve tried again and again to show you that I care, to be there for you, to make things work. But instead of listening to me or anyone else who’s actually trying to help, you’ve decided to follow Soap’s feelings like they’re gospel. It’s like our voices don’t matter to you anymore.
 
