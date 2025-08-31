@@ -1,24 +1,5 @@
 ![](https://64.media.tumblr.com/da0021b3a9d594150d0af21422b5b352/9675be42b7d3a191-d3/s400x600/48cbc49b6d76c57ceba4a4097b03a706aa4cc864.pnj)
 
 
-✦ 💬 yes, this is a drama dump.
+✦ 💬 waves screams throws up
 ︶︶︶︶︶︶︶︶︶︶︶︶︶︶︶︶︶︶
-Saff, for the love of God, stop twisting what I am. Just because I told you that being around Soap isn’t a good idea doesn’t mean I, or anyone ELSE is manipulative. That’s not what this is about, and you know it. You’re seriously starting to act just like Soap, and it’s honestly ridiculous. I’ve tried again and again to show you that I care, to be there for you, to make things work. But instead of listening to me or anyone else who’s actually trying to help, you’ve decided to follow Soap’s feelings like they’re gospel. It’s like our voices don’t matter to you anymore.
-
-And I swear, if I get even one more complaint from you guys, I’m going to crash out. I’m not saying that lightly. It won’t just be me losing it, it’ll be Russel and NPC too. We’re all at our breaking point, and you keep pushing like none of it matters.
-
-Also, Soap, stop bringing up my past. I’ve already admitted I was wrong. I’ve taken the blame. I’ve owned up to everything, even things I didn’t need to. I’ve literally blamed myself just to keep the peace. What more do you want from me? You keep dragging it up like it’s some kind of weapon, and I’m done with it. I’m not perfect, but I’ve tried. I’ve tried harder than you even realize.
-
-ALSO. for crying out LOUD. STOP adding Vinny to literally fucking everything. Like Jesus Christ on a stick, we are not conjoint twins or something. When I say my shit, don’t bring him into it. I’m allowed to speak for myself without you dragging him into every damn sentence like we’re a package deal. It’s exhausting. And Saff, Vinny SHOWED PROOF of how Soap is manipulative, and obviously you can’t see that. Stop throwing the manipulative card at literally anyone and anything just because you don’t like what’s being said. It’s getting out of hand.
-
-^ vinny already stated that he doesn't want to be mentioned and you should RESPECT THAT. he literally did nothing!!!!, heck blame me instead of him!!, I was the one who let one of my alters under my help,ran to saffy's ata first this time, meaning I'm the one to blame, NOT HIM.
-
-I’m mentally and emotionally drained from constantly having to defend myself & others to people who claim to care. It’s like no matter how many times we explain ourself, no matter how many times we try to be honest, it gets twisted or ignored. I’m tired of me and vinny being the one who has to carry the emotional weight of you two while everyone else gets to point fingers and act like we the problem. You keep acting like you’re the only one hurting, but you never stop to ask how your actions affect the rest of us. You don’t see the damage you leave behind when you lash out, when you dismiss what we’re feeling, when you make everything about you. We’re all dealing with things. We’re all trying to hold it together. But you make it harder every time you refuse to acknowledge that you’re not the only one in pain.
-
-
-Also, being “mature” and “healing” doesn’t mean you go around befriending people who literally HARMED you and STALKED you. That’s not growth. That’s not strength. That’s just straight-up stupidity dressed up as self-improvement. You don’t get a gold star for pretending everything’s fine with people who violated your boundaries and made you feel unsafe. That’s not healing. that’s self-betrayal. You’re not being mature by letting toxic people back into your life; you’re being reckless. You’re ignoring every red flag just to prove some twisted point that you’ve “moved on,” when really, you’re just circling back to the same damage that broke you in the first place.
-
-You don’t owe toxic people a damn thing. Not closure. Not kindness. Not friendship. Some bridges are meant to stay burned, and trying to rebuild them just makes you look desperate for validation from the very people who tore you down. It’s not brave. it’s embarrassing. You keep calling it “growth,” but it’s really just avoidance. Real healing means protecting your peace, not handing it over to the same people who shattered it. Stop calling it maturity when it’s clearly just fear of standing alone.
-
- ︶︶︶︶︶︶︶︶︶︶︶︶︶︶︶︶︶
- 
