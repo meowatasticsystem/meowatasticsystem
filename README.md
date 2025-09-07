@@ -1,12 +1,19 @@
-![](https://64.media.tumblr.com/983b7bbbaf578345780f900b473c2bb9/90123053d4043f10-56/s1280x1920/251c29e96b2931dd15af4461ac1d11b120cf1d30.pnj)
-
-----
-
 ![](https://64.media.tumblr.com/da0021b3a9d594150d0af21422b5b352/9675be42b7d3a191-d3/s400x600/48cbc49b6d76c57ceba4a4097b03a706aa4cc864.pnj)
 
 
 
-✦ 💬 waves screams throws up
+✦ 💬 waves screams throws up, anyways pls look at my sp for my about!,
+**but is you are lazy on doing that, here!**
+
+* im bodily 15, genderfuild, omnisexual n aroace.
+
+* im known to be a very sensitive person, aka a HSP, so intwc (interact with caution) at all times!
+
+* I forget things constantly, if you tell me something I will probably forget it in like a day or 2. please tell me to write stuff down if it's important!!, that's the only way I will remember something, I mainly just remember very small things than complicated, unless it's like drama. that stuff is always stuck in my head 24/7
+
+* I am very hyper but also a very shy person, meaning I might or might not interact with you, please do not call me rude if I don't interact!, I have a very complicated ways of doing things, for my protection and sensitivity.
+
+* I mainly always stay by my friends, Beach/docks or somewhere at the corner of the map!
 ︶︶︶︶︶︶︶︶︶︶︶︶︶︶︶︶︶︶
 
 ![](https://64.media.tumblr.com/ad570a59ff5eec93c093cc17f7c0e466/b2fb816dc965086f-a7/s250x400/22d2483926b623ee0816f7e3c98f10cb54385278.pnj)
